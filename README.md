@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+📫 How to reach me: 
+* Linkedin: https://www.linkedin.com/in/espensolbu/
+
+
